@@ -1,1 +1,1 @@
-# .github
+# Sekumingo sp. z o.o.
